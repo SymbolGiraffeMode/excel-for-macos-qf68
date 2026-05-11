@@ -1,4 +1,4 @@
-
+rare Excel for macOS Module | machine-learning + 3D-plotting offers the most advanced Excel for macOS module, with machine-learning and 3D-plotting. Ideal for macOS professionals.
 
 
 
